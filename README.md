@@ -2,4 +2,4 @@
 
 ## Equipo 5  :sunglasses:
 
-- Joselyn González
+- Joselyn :D! 
