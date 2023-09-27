@@ -2,7 +2,16 @@
 
 ## Equipo 5  :sunglasses:
 
+cristina
+Acá estuvo Cristina B-)
 
-## Solange
+Ema Arraigada - Acompañando al equipo 
 
-Archivo actualizado.
+
+- Joselyn :D! 
+
+
+## Orlenis
+
+
+¡Me encanta Git! -- Solange 😳
