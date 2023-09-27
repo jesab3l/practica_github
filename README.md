@@ -2,4 +2,4 @@
 
 ## Equipo 5  :sunglasses:
 
-Ema Arraigada - Acompañando al equipo 
+## Ema listo
